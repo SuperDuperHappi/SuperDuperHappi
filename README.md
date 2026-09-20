@@ -2,11 +2,6 @@
 
 <br><br>
 
-<img width="40" alt="icona_walk2" src="https://github.com/user-attachments/assets/c60d2aa6-0eb6-4f83-81ca-ee6f66fad155" />
-
-
- [ ! Sign my ata](https://hamgurncheesy.atabook.org/)
-
 
 ![ (,; ⩌ ;,) ](https://komarev.com/ghpvc/?username=YOUR-RoryPup&color=f8b1e0)
 <img width="50" alt="Tumblr_l_882980519438272" src="https://github.com/user-attachments/assets/6c874f68-9103-4821-b85e-b06c297e1b0c" />
