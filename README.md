@@ -3,7 +3,7 @@
 
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=313dn5vsjmquhjxuyp3ufzici6lm&cover_image=true&theme=novatorem&show_offline=true&background_color=0d1117&interchange=false&profanity=false&hide_remaster=false&bar_color=f8b1e0&bar_color_cover=f8b1e0" width="300">
 
-haii my name is pizza eater aka doux or cheesy and i like playing pony town
+haii my name is pizza eater aka doux or zero and i like playing pony town
 
 mostly appears as a UU cosplayer in the corner of the map 
 
