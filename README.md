@@ -5,7 +5,7 @@
 
 haii my name is pizza eater aka doux or zero and i like playing pony town
 
-mostly appears as a UU cosplayer in the corner of the map 
+mostly appears as a UU / myct cosplayer in the corner of the map 
 
 i liek eggchan 
 
